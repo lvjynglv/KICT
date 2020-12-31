@@ -1,0 +1,2 @@
+# KICT
+https://kbig.kr/
